@@ -1,4 +1,4 @@
-
+welcome to bloxburg Script best is the best welcome to bloxburg Script, featuring auto-heal and no clip. Safe and powerful for all your needs.
 
 
 
